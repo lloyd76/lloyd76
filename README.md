@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning AI Career 
 - 💞️ I’m looking to collaborate on all projects
 - 📫 How to reach me coinlloyd128@gmail.com
-- 😄 Pronouns: ...
+- 😄 Pronouns: HIM
 - ⚡ Fun fact: pratice every day
 
 <!---
